@@ -242,4 +242,4 @@ Warcraft Rumble is available as a full free version for Windows. You will enjoy 
 Join the thrilling world of Warcraft Rumble today, and unleash your strategic prowess! Download now and start your adventure!
 
 ---
-**Last updated:** 2026-11-13 21:52:13 UTC
+**Last updated:** 2026-11-14 02:08:32 UTC
